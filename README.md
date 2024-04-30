@@ -1,0 +1,2 @@
+un tipo con cappucio
+
